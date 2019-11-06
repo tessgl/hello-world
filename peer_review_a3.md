@@ -17,4 +17,3 @@ Following the rubric, I evaluate the report as:
 - ***Excellent***
   concerning resolution of subtasks.
 
-To me, the report as a whole was extremely thorough. I can't find a single way to improve it further, simply perfection.
